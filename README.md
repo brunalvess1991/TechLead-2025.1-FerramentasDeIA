@@ -1,0 +1,1 @@
+# TechLead-2025.1-FerramentasDeIA
